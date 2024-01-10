@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rolanhor
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning startup`s management.
